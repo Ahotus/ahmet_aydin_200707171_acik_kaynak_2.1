@@ -1,0 +1,2 @@
+# ahmet_aydin_200707171_acik_kaynak_2.1
+ahmet_aydin_200707171_acik_kaynak_2.1
